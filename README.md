@@ -1,1 +1,0 @@
-# suomen-vapaiden-ihmisten-kommuuni
